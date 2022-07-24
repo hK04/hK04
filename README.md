@@ -1,4 +1,4 @@
-- ✅  Hi, I’m @hK04//Matthew Anoshin
+- ✅  Hi, I’m @hK04//Matthew Anoshin, Moscow Physics and Technology First Year Student
 - 👁‍🗨  I’m interested in Neural Networks💪Quantum computing🤘Tomorrow day technologies
 - 📳  Message me on Telegram:    @g42alaxy
 
