@@ -1,4 +1,4 @@
-- ✅  Hi, I’m @hK04//Matthew Anoshin, MIPT First Year Student 🎓 
+- ✅  Hi, I’m @hK04//Matthew Anoshin, MIPT (Moscow) First Year Student 🎓 
 - 👁‍🗨  I’m interested in Neural Networks💪Quantum computing🤘Tomorrow day technologies
 - 📳  Message me on Telegram:    @g42alaxy
 
