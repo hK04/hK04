@@ -1,5 +1,5 @@
 - ✅  Hi, I’m @hK04//Matthew Anoshin, MIPT (Moscow) First Year Student 🎓 
-- 👁‍🗨  I’m interested in Machine Learning, Neural Networks💪Quantum computing🤘Tomorrow day technologies
+- 👁‍🗨  I’m interested in System Developing Data🦸Science🦹Quantum computing🤘Tomorrow day technologies
 - 📳  Message me on Telegram:    @g42alaxy
 - 📧  Message me on email: anoshin.ma@phystech.edu    
 - 🧠  My Kaggle: [link](https://www.kaggle.com/matthewanoshin)
