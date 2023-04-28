@@ -1,4 +1,4 @@
-- ✅  Hi, I’m @hK04//Matthew Anoshin, MIPT (Moscow) First Year Student 🎓 
+- ✅  Hi, I’m @hK04//Matthew Anoshin, MIPT (Moscow) Bachelor Student 🎓 
 - 👁‍🗨  I’m interested in Data Science 🌌 Astrophysics ⚛️ Quantum computing 🧬 BioTechnologies 
 - 📳  Message me on Telegram:    @g42alaxy
 - 📧  Message me on email: anoshin.ma@phystech.edu    
